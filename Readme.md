@@ -1,0 +1,1 @@
+Piñata cakes are 3-D looking cakes and have taken the internet by a storm for a good reason. They're incredibly fun to make and can be filled with anything you want- making for a great surprise.
